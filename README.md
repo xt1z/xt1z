@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, I'm Chutipon <br><br>I love Biology Physics and Chemistry.<br> <br>not good at coding at all lol.<br> <br><br>17yrs boy from BKK.<br><br>==================<br>Student @SSRU grade 12 / year 13<br>==================
+Hi, I'm Chutipon <br><br>I love Biology Physics and Chemistry.<br> <br><br>18yrs boy from BKK.<br><br>==================<br>Student @SSRU grade 12 / year 13<br>==================
 
 
 ## 🌐 Socials:
